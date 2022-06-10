@@ -1,4 +1,4 @@
-## What's up. I don't want to tell you my real name that's why you can call me Seido! 
+## What's up! 
 
 ###  About me:
 - 🗺️ From ?????????? 
